@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-TIMD850408HMNNRN00
+TIMD850408HMNNRN00
